@@ -1,1 +1,1 @@
-I love u zindagi
+I love u zindagi.
