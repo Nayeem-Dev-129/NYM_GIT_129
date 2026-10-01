@@ -1,1 +1,1 @@
-love u zindagi
+like u zindagi
